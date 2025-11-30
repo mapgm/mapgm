@@ -1,11 +1,6 @@
 ## 👋 Hi
 
-### An ordinary student from MUC and have a little dream.
-### To see the higher trees. 🌴
-
-## 📬 My Blog
-
-### Welcome to my [blog](https://mapgm.github.io/) , if you have better suggestions please contact me.
+### Exit liquidity loves to dream.
 
 ## 📈 Github Stats & Languages
 
